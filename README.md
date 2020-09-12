@@ -8,5 +8,6 @@ Material grafico pertenece a:
 
 - www.lumitblockchain.com
 - https://www.facebook.com/events/290172472130345/permalink/341482646999327/
+- Otros sitios web.
 
  Notas tomadas en las sesiones virtuales.
